@@ -1,0 +1,2 @@
+# awjan
+sangat baik 
